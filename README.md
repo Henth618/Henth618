@@ -37,8 +37,8 @@ I specialize in building **robust, scalable, and secure backend systems** for we
 ---
 
 ## 🎨 Hobbies & Interests
-- 🎬 Video Editing  
-- 🎨 Graphic Design  
+- 🎬 Video Editing (Certified) 
+- 🎨 Graphic Design (Certified) 
 - 📈 Digital Marketing Management (Certified)  
 
 ---
